@@ -1,4 +1,5 @@
 - Hello, I’m @ahmed emad lotfy mohamed
+- contact- ahmedelutfi@gmail.com
 - persuasive, hard worker, and open minded,
 i can see the opportunity in any difficulty, 
 having strong analytical and problem-solving skills, can adapt and Work with multi-disciplinary team environment with a desire to share knowledge in mutual benefit, Good leader who motivates his team by his experience in communication skills and team working.
